@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 💙💙
 
-Meu nome é Matheus Eliezer
+Meu nome é Matheus Eliezer 🙂
 
 Estou estudando na Alura
 Estou me desenvolvendo na linguagem JavaScript
