@@ -9,3 +9,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 0000112477791xsp@al.educacao.sp.gov.br
 @alurastartestudante
+
+![](https://media1.tenor.com/m/tOp3tvRLZmkAAAAC/plane-take-off.gif)
